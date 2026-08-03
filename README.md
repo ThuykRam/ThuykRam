@@ -19,7 +19,3 @@
 
 ---
 
-  <img src="https://github-readme-stats.vercel.app/api?username=ThuykRam&show_icons=true&theme=dark&hide_border=true&count_private=true" height="150" />
-
-</div>
-
