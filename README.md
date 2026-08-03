@@ -19,16 +19,6 @@
 
 ---
 
-### 🛠️ Skills & Tools
-
-<p align="center">
-  <img src="https://skillicons.dev/icons?i=python,js,html,css,git,github,vscode,canva,figma&theme=dark" />
-</p>
-
----
-
-<div align="center">
-
   <img src="https://github-readme-stats.vercel.app/api?username=ThuykRam&show_icons=true&theme=dark&hide_border=true&count_private=true" height="150" />
 
 </div>
