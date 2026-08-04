@@ -49,9 +49,7 @@ Born: 2010
   
  
 🎧I really love listening to ‧₊˚♪ music 𝄞₊˚⊹  And since I'm super *open-minded*, feel free to throw your favorite tracks at me— 
-
 <br>
-
    I'll definitely add them to my Spotify playlist!
 
 ---
