@@ -1,9 +1,12 @@
 <div align="center">
+<img width="880" height="450" alt="giphy" src="https://github.com/user-attachments/assets/08d56a7d-1e61-4a6b-8ea2-1c5e4a224469" />
+
+<div align="center">
 
 # ─── ❖ ─── A b o u t   M e  (っ ˋ - ˊ )っ ─── ❖ ───
 
   <p align="center">
-    <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=22&pause=1000&color=FF0000&center=true&vcenter=true&width=435&lines=I'm+gay" />
+    <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=22&pause=1000&color=e4dcbc&center=true&vcenter=true&width=435&lines=I'm+gay" />
   </p>
 
 </div>
