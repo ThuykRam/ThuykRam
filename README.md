@@ -29,7 +29,7 @@ Born: 2010
 
 <br>
 
-ׂ╰┈➤I'm easygoing and friendly to talk to. Don't be shy if you see me sitting AFK in Pony Town (*ฅ́˘ฅ̀*)
+ׂ╰┈➤I'm easygoing and friendly to talk to. Don't be shy if you see me AFK in Pony Town (*ฅ́˘ฅ̀*)
 
 <br>
 
@@ -43,12 +43,12 @@ Born: 2010
 
 *⁀➷ I don't join many fandoms... and the ones I like are pretty flop... 
 <br>
-    But if you bring them up, I'll happily try to learn about them with you! Btw, I do follow *Path to Nowhere* ✧.*
+    But if you bring them up, I'll happily try to learn about them with you! Btw, I do follow **Path to Nowhere** ✧.*
     
   <br>
   
  
-🎧I really love listening to ‧₊˚♪ music 𝄞₊˚⊹  And since I'm super *open-minded*, feel free to throw your favorite tracks at me— 
+🎧I really ***love*** listening to ‧₊˚♪ music 𝄞₊˚⊹  And since I'm super *open-minded*, feel free to throw your favorite tracks at me— 
 <br>
    I'll definitely add them to my Spotify playlist!
 
