@@ -33,7 +33,7 @@ Born: 2010
 
 <br>
 
-𖤓 I often off-tab Pony Town to play other games, so please **whis!!** me! I never intend to ignore you (; _ ;)
+𖤓 I often off-tab Pony Town to play other games, so please **whis** me! I never intend to ignore you (; _ ;)
 
 <br>
 
