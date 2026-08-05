@@ -21,9 +21,8 @@
 <br>
 Name: Call me ･⋆Thủy⋆. or any nickname you like  (˵˃ ᗜ ˂˵)
 <br>
-Gender: ♥︎ Female  ♥︎
+Gender: ♥︎ Female ♥︎
 <br>
-Born: 2010 
 
 𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃
 
