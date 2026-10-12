@@ -28,7 +28,7 @@ Gender: ♥︎ Female ♥︎
 
 <br>
 
-ׂ╰┈➤I'm easygoing and friendly to talk to. Don't be shy if you see me AFK in Pony Town (*ฅ́˘ฅ̀*)
+ׂ╰┈➤I'm easygoing and friendly to talk to. Don't be shy if you see me AFK in Pony Town -safe VietNam server- (*ฅ́˘ฅ̀*)
 
 <br>
 
